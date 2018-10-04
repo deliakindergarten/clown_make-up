@@ -1,1 +1,2 @@
-# clown_make-up
+# International Clown Festival Make-up Competition
+

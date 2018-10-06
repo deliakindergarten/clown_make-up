@@ -7,3 +7,5 @@
 [the ppt](https://deliagroup.sharepoint.com/:p:/s/clown_make-up/ERcX62CtKKpOqHh-DwHkzKABP3Cl3WzWk6b6Zde7EH9DiA?e=IRwzFV)
 
 [the proposal](https://deliagroup.sharepoint.com/:w:/s/clown_make-up/EZd_07gy9XBGntRVDnH0AskBt94aswaMxdTyO8zmD9KTIA?e=vcgifx)
+
+[the notice](https://deliagroup.sharepoint.com/:w:/s/clown_make-up/ERoLLYYl8LlEqWu6qoxkUxkBmdnUqYpHP8F3qQceSFKx6A?e=8DvRU6)

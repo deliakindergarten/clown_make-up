@@ -8,6 +8,6 @@
 
 [the proposal](https://deliagroup.sharepoint.com/:w:/s/clown_make-up/EZd_07gy9XBGntRVDnH0AskBt94aswaMxdTyO8zmD9KTIA?e=vcgifx)
 
-[the notice](https://deliagroup.sharepoint.com/:w:/s/clown_make-up/ERoLLYYl8LlEqWu6qoxkUxkBmdnUqYpHP8F3qQceSFKx6A?e=8DvRU6)
+[the notice](https://deliagroup.sharepoint.com/:w:/s/clown_make-up/EUfiZoIojytBuj9RAfNwZAEBw0IHf1L7ttbolducDEvxrQ?e=d7PyPN)
 
 [issues](https://github.com/deliakindergarten/clown_make-up/issues)
